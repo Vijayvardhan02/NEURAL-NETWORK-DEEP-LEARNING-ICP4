@@ -1,4 +1,4 @@
 # NEURAL-NETWORK-DEEP-LEARNING-ICP4
 GONABOYINA VIJAY VARDHAN(700755141)
 
-VIDEO LINK :
+VIDEO LINK :https://drive.google.com/file/d/1WtKZ5EQqLTOjarun3wx9vaat-zQ7iIH2/view?usp=drive_link
